@@ -1,3 +1,3 @@
-![](https://komarev.com/ghpvc/?username=howiesbling&abbreviated=true&color=black&style=flat&label=bets+made💵)
+![](https://komarev.com/ghpvc/?username=circuitingwires&abbreviated=true&color=1b0928&style=flat&label=bets+made💵)
 ![](https://www.oxygen.com/sites/oxygen/files/styles/hero_image__large__computer__alt_1_5x/public/2019-12/uncut-gems-3.jpg?itok=K832PN3z)
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=D7614Bbar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&redirect=true)
