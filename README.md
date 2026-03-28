@@ -1,3 +1,4 @@
-![](https://komarev.com/ghpvc/?username=circuitingwires&abbreviated=true&color=a6988f&style=flat&label=twisted+counter🎵)
-![](https://i.pinimg.com/736x/b3/c3/8c/b3c38ce1fec8c9c96f18666cd4cd21bd.jpg)
+&nbsp;<div align="center">
+![](https://komarev.com/ghpvc/?username=circuitingwires&abbreviated=true&color=a6988f&style=flat&label=tracked+played📱)
+<img width="550" height="650" alt="ezgif com-animated-gif-maker" src="https://i.pinimg.com/736x/51/18/10/5118100c1a9ff36ee9e4d4292da55a6f.jpg" />
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=false&bar_color=D7614Bbar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31qcwlth6q4onen5dhyzn34dau5m&redirect=true)
